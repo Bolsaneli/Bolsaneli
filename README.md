@@ -9,3 +9,5 @@ Meu nome é Letícia 🤠
   ### Você pode entrar em contato comigo 📧
 
   00001114503873sp@al.educacao.sp.gov.br
+
+![](https://media1.tenor.com/m/GOabrbLMl4AAAAAd/plink-cat-plink.gif)
